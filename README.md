@@ -14,6 +14,6 @@ Find me at...
 
 **See you up there!**
 
-**_Ad Astra et Aspera!_**
+**_Ad Astra per Aspera!_**
 
 ![QX-Cedro](https://github.com/user-attachments/assets/a14abf95-9c0f-4220-b6b4-9124552679a2)
