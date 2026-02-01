@@ -1,8 +1,8 @@
 ## Hi there 👋
 
-Claudio Sampaio, from Brazil (🇧🇷). 
+Claudio Sampaio 🇧🇷. 
 
-PhD Student in Aeronautical Engineering at [University of Beira Interior (UBI)](https://ubi.pt/).
+PhD Candidate in Aeronautical Engineering at [University of Beira Interior (UBI)](https://ubi.pt/) 🇵🇹.
 
 
 Find me on ...
