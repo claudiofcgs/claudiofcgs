@@ -2,7 +2,7 @@
 
 Claudio Sampaio 🇧🇷. 
 
-PhD Candidate in Aeronautical Engineering at [University of Beira Interior (UBI)](https://ubi.pt/) 🇵🇹.
+Aeronautical Engineering PhD Candidate at [University of Beira Interior (UBI)](https://ubi.pt/) 🇵🇹.
 
 
 Find me on ...
