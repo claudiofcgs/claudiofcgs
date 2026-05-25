@@ -4,10 +4,9 @@ Claudio Sampaio 🇧🇷.
 
 Aeronautical Engineering PhD Candidate at [University of Beira Interior (UBI)](https://ubi.pt/) 🇵🇹.
 
-**_Ad Astra per Aspera!_**
-
 **See you up there!**
 
+**_Ad Astra per Aspera!_**
 
 Find me on ...
 
